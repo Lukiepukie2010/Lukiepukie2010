@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on -
 - 📫 How to reach me: ewaltslucas@gmail.com
 - 😄 Pronouns: he/him 
-- ⚡ Fun fact:
+- ⚡ Fun fact: my IQ is above your understanding
 
 <!---
 Lukiepukie2010/Lukiepukie2010 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
