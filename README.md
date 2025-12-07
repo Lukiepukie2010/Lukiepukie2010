@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lukiepukie2010
+- 👋 Hi, I’m @LucasEwalts
 - 👀 I’m interested in learning to code and make websites
 - 🌱 I’m currently learning building websites with javascript and html and css and I am currently learning python
 - 💞️ I’m looking to collaborate on -
